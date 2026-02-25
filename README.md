@@ -1,5 +1,5 @@
 # 💫 A propos de moi:
-🔭 Mes projets se tournent essentiellement vers des application concrètes<br>🌱 J'apprend beaucoup par moi même<br>💬 Débordant d'idées
+🔭 Mes projets se tournent essentiellement vers des applications concrètes<br>🌱 J'apprends beaucoup par moi même<br>💬 Débordant d'idées
 
 
 ## 🌐 Me trouver sur Internet:
